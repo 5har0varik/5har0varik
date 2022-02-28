@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @5har0varik
-- 👀 I’m interested in pease
+- 👀 I’m interested in peaсe
 - 🌱 I’m currently learning how to fight
 
 <!---
